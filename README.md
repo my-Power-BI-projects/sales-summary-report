@@ -29,4 +29,5 @@ Which product and segment should the company continue to invest in? *The company
 
 ## Contact me
 Email - jeffenyinnah@gmail.com
+
 [LinkedIn](https://www.linkedin.com/in/amamihe-kaiser/)
